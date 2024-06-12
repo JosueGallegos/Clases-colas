@@ -1,1 +1,1 @@
-###Integrantes: Josue Gallegos, Bryan Morquecho
+###Integrantes: Josue Gallegos, Bryan Morquechogit p
